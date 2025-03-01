@@ -1,1 +1,1 @@
-# ETAAcademy-Collection
+# ETAAcademy-Images
